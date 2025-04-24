@@ -1,1 +1,1 @@
-My peronal HUB
+My personal HUB
